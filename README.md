@@ -1,6 +1,6 @@
 # 
 🔥🔥🔥
-NORORIOS CODING
+NOTORIOS CODING
 🔥🔥🔥
 
 
